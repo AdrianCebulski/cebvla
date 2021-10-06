@@ -1,1 +1,2 @@
 Jestem z Gdańska.
+Student
